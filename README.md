@@ -1,3 +1,5 @@
 # RIP-DAVID
 
-Tell the dude(we all know who are we talking about) to stop doing what the shit he loves to do else I am going kidnap and bust his 菊花.
+Tell the dude(we all know who we are talking about) to stop doing what he loves to do, or else I am going to kidnap and bust his 菊花.
+
+Also, am I crazy does a doctor just label everything as a disorder?
