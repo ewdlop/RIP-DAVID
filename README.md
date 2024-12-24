@@ -6,3 +6,7 @@ Also, am I crazy does a doctor just label everything as a disorder?
 
 
 No, this dude is claiming people stole his stuff before we even met him.
+
+# Here is the REAL thing
+
+the thing between this person and me is not about Esmeralda Marte.
