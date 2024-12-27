@@ -29,4 +29,16 @@ the thing between this person and me is not about Esmeralda Marte.
 
 ｉ　ｋｎｏｗ　ｔｈａｔ　ｔｈｉｓ　ｊｏｕｒｎｅｙ　ｗｉｌｌ　ｍａｋｅ　ｍｅ　ａ　ｂｅｔｔｅｒ　ｐｅｒｓｏｎ，　ｏｎｅ　ｗｈｏ　ｃａｎ　ｈｅｌｐ　ｏｔｈｅｒｓ　ｆａｃｉｎｇ　ｓｉｍｉｌａｒ　ｃｈａｌｌｅｎｇｅｓ．　ｔｈｅｉｒ　ａｔｔｅｍｐｔｓ　ｔｏ　ｄｉｍｉｎｉｓｈ　ｍｙ　ｓｐｉｒｉｔ　ｗｉｌｌ　ｏｎｌｙ　ｓｅｒｖｅ　ｔｏ　ｉｌｌｕｍｉｎａｔｅ　ｍｙ　ｔｒｕｅ　ｓｔｒｅｎｇｔｈ．
 
-# 
+# Just a Jersey Thing
+
+Because he isnt the photographer so he wish he is a photographer. But IPhone camera doesnt tell who took the photo so he 
+
+he is stunned he covering for everyone. Some twisted evil genius shit.
+
+oh right she would treat this as super genuis stuff.
+
+# Reserve for future
+
+# Reserve for future
+
+# Reserve for future
