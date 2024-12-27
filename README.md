@@ -39,6 +39,8 @@ oh right she would treat this as super genuis stuff.
 
 # Dude needs to surrender to Authority - 12-27-2024
 
+He tried to took photo of himself from all angle that is what he is doing.
+
 # Reserve for future
 
 # Reserve for future
