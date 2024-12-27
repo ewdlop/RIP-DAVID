@@ -37,7 +37,7 @@ he is stunned he covering for everyone. Some twisted evil genius shit.
 
 oh right she would treat this as super genuis stuff.
 
-# Reserve for future
+# Dude needs to surrender to Authority - 12-27-2024
 
 # Reserve for future
 
